@@ -14,9 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
 You can Find me over : 
 
 LinkedIn : https://www.linkedin.com/in/varun-dev-19624b226/
+
 YouTube  : https://www.youtube.com/@getupandlearn
+
 Quora    : https://www.quora.com/profile/Varun-Dev-208
