@@ -1,4 +1,4 @@
-ing### Hi there 👋 😑
+🙏 Namaste 🙏
 
 <!--
 **Varundev0620/varundev0620** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
